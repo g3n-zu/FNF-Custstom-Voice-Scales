@@ -1,2 +1,5 @@
 # FNF-Custstom-Voice-Scales
-Every Custom Voice Scale I made. Enjoy.
+
+---------------------------------
+
+Welcome! This is the place where you can find every single custom voice scale I made!
