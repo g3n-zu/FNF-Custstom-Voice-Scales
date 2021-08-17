@@ -38,3 +38,9 @@ Spooky Kidz (Chiller) - KawaiSprite, Phantom Fear
 Tabi - Homskiy
 
 Monica - DusterBuster
+
+AGOTI - BrightFyre
+
+Nene - NEONVORE
+
+Cheeky - Lexicord
